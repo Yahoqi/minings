@@ -1,0 +1,2 @@
+# minings
+mining coin yahoqi
